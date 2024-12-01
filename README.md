@@ -6,7 +6,7 @@ my profile is NOT trash 💯
 [![MIT License](https://img.shields.io/badge/License-MIT-green.svg)](https://choosealicense.com/licenses/mit/)
 [![GPLv3 License](https://img.shields.io/badge/License-GPL%20v3-yellow.svg)](https://opensource.org/licenses/)
 [![AGPL License](https://img.shields.io/badge/license-AGPL-blue.svg)](http://www.gnu.org/licenses/agpl-3.0)
-[![REAL GANGSTA](https://m.media-amazon.com/images/I/51t19omMrtL._UXNaN_FMjpg_QL85_.jpg)](http://www.gnu.org/licenses/agpl-2.0)
+[![REAL GANGSTA](https://i.postimg.cc/5NbFZDz2/51t19om-Mrt-L-UXNa-N-FMjpg-QL85-1.jpg)](https://flashbdmobilesoftoware.blogspot.com/2022/09/mi-usb-driver.html)
 
 ## Color Reference
 
